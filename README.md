@@ -69,9 +69,8 @@ ${{\color{#f6bba1}{\textsf{ my wings }}}}$ <img src="rose.gif" width="15px">
 <details>
 <summary>${{\color{#e18787}{\textsf{ shout out to da exp33 goats :-) }}}}$</summary>
 
-&nbsp;
 
-<sub>geo (GAYEST one),ㅤdylan,ㅤnatalan,ㅤlimon,ㅤenchant,ㅤellie,ㅤalexㅤ+ㅤvena (random kid who keeps wanting our parents some1 KILL her) </sub>
+<sub>**geo** (GAYEST one),ㅤ**dylan**,ㅤ**natalan**,ㅤ**limon**,ㅤ**enchant**,ㅤ**ellie**,ㅤ**alex**ㅤ+ㅤ**vena** (random kid who keeps wanting our parents some1 KILL her) </sub>
 
 <img src="Captura de pantalla 2026-11-01 230829.png" width="350px">
 
