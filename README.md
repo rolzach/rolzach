@@ -66,6 +66,14 @@ ${{\color{#f6bba1}{\textsf{ my wings }}}}$ <img src="rose.gif" width="15px">
 | read straw b4 you int |
 |------------------------------|
 
+<details>
+<summary>${{\color{#e18787}{\textsf{ shout out to da exp33 goats :-) }}}}$</summary>
+
+<sub>geo (GAYEST one), dylan, natalan, limon, enchant, ellie, alex + vena (this NONEXP33 girl keeps wanting our parents some1 KILL her) </sub>
+
+
+</details>
+
 &nbsp;&nbsp;&nbsp;
 
 ---
