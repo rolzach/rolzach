@@ -60,7 +60,7 @@ ${{\color{#f6bba1}{\textsf{ my wings }}}}$ <img src="rose.gif" width="15px">
 
 &nbsp;&nbsp;&nbsp;
 
-*leave a wish 4 christmas on my <a href="https://decomytree.io/t/xfqGLX?invite=xfqGLX">tree</a>! :-)*
+*deco my <a href="https://decomytree.io/t/xfqGLX?invite=xfqGLX">christmas tree</a>! :-)*
 
 &nbsp;
 
